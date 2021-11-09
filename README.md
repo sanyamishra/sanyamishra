@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @sanyamishra
+- 👀 I’m interested in psychology, poetry, and art.
+- 🌱 I’m currently a high school senior, looking forward to taking Psychology major in College, starting a blog, and publishing a book!
+- 💞️ I’m looking to collaborate on poetry books, or tbh anything related to writing!
+- 📫 You can contact me on my Instagram account @sanya.writes !
